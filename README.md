@@ -3,3 +3,6 @@
 Pievienot bildes
 
 Rakstīt tekstu
+grūti saprast
+
+hfhfhfh
